@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning Web Developement And Want To Learn Game Developement
 - 💞️ I’m looking to collaborate on A Game 
 - 📫 Reach me On Reddit https://www.reddit.com/user/Mr_Phantasm09
-- 💻 If We Reach An Agreement I Will Provide My Discord TO Further Discuss
+- 💻 If We Reach An Agreement I Will Provide My Discord To Further Discuss
 
 
 
